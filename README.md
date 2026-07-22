@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-ROSL860525HSRDVS05
+ROSL860525HSRDVS05
